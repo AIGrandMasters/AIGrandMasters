@@ -6,4 +6,4 @@ The only thing which stops you is the desire to learn.
 - 😎 Website Comming Soon Stay Tuned.
 - 💬 Subscribe to Our <b> Telegram channel </b> for Quick Updates : https://t.me/AIGrandMasters
 - Follow us through Linkedin : https://www.linkedin.com/company/ai-grand-masters-academy/
-- 📫 Anyone can reach us for all Career and Bussines related queries: contact.ai.grandmasters@gmail.com
+- 📫 Anyone can reach us for all Career and Business related queries: contact.ai.grandmasters@gmail.com
